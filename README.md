@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **syedbajeeth123@gmail.com**
 
-- ⚡ Fun fact **⚡ Fun fact: 🔍 Solving coding problems like a modern-day Sherlock.**
+- ⚡ Fun fact ** 🔍 Solving coding problems like a modern-day Sherlock.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
